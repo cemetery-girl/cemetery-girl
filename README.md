@@ -4,3 +4,8 @@
 <p align="center">
   <a href=https://rentry.co/massinfectionn>rentry</a>⠀ ⠀  ☆⠀ ⠀  <a href=https://cemetery-girl.straw.page/>strawpage</a>⠀ ⠀  ☆⠀ ⠀  <a href=https://1x1x1x1yaoi.atabook.org/>atabook</a>
 </p>
+
+
+<p align="center">
+  strawpage  &  atabook are getting rethemed
+</p>
