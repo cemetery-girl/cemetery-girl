@@ -7,5 +7,10 @@
 
 
 <p align="center">
-  strawpage  &  atabook are getting rethemed
+  c+h encouraged⠀⠀don't be shy :)
+</p>
+
+
+<p align="center">
+  always⠀w2i
 </p>
