@@ -11,12 +11,12 @@
 
 
 <p align="center">
-  c+h encouraged⠀⠀don't be shy :)
+  c+h encouraged⠀⠀!
 </p>
 
 
 <p align="center">
-  always⠀w2i
+  this stuff will always change like every 10 days or something i'm never satisified LOL
 </p>
 
 
