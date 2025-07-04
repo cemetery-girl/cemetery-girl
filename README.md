@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/6a91603e-f493-4993-a440-f1a47b4b7afa)
+![image](https://github.com/user-attachments/assets/80f950cc-445f-4a72-9d87-c2fb4af9545b)
+
 
 
 
@@ -12,11 +13,6 @@
 
 <p align="center">
   c+h encouraged⠀⠀!
-</p>
-
-
-<p align="center">
-  this stuff will always change like every 10 days or something i'm never satisified LOL
 </p>
 
 
