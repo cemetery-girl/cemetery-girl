@@ -8,7 +8,7 @@
 
 
 <p align="center">
-  <a href=https://rentry.co/massinfectionn>rentry</a>⠀ ⠀  ☆⠀ ⠀  <a href=https://cemetery-girl.straw.page/>strawpage</a>⠀ ⠀  ☆⠀ ⠀  <a href=https://mass1xfection.atabook.org/>atabook</a>⠀ ⠀  ☆⠀ ⠀  <a href=https://en.pronouns.page/@v.1x.en>prns.page</a>
+  <a href=https://cemetery-girl.straw.page/>strawpage</a>⠀ ⠀  ☆⠀ ⠀  <a href=https://mass1xfection.atabook.org/>atabook</a>⠀ ⠀  ☆⠀ ⠀  <a href=https://en.pronouns.page/@v.1x.en>prns.page</a>
 </p>
 
 
