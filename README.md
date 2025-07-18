@@ -3,7 +3,9 @@
 
 
 
-
+<p align="center">
+  ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
+</p>
 
 <p align="center">
   <a href=https://cemetery-girl.straw.page/>strawpage</a>⠀ ⠀  ☆⠀ ⠀  <a href=https://iichance.atabook.org/>atabook</a>⠀ ⠀  ☆⠀ ⠀  <a href=https://en.pronouns.page/@v.1x.en>prns.page</a>
@@ -14,5 +16,13 @@
 </p>
 
 <p align="center">
+  ────୨ৎ────
+</p>
+
+<p align="center">
   ic: @kuqii_ on twt⠀⠀@bensiebetsy on tt
+</p>
+
+<p align="center">
+  ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 </p>
