@@ -1,4 +1,6 @@
-<img width="2397" height="1530" alt="image" src="https://github.com/user-attachments/assets/0d3c8ac6-cf1e-4a92-a3ad-7f59fe290636" />
+<img width="2397" height="1530" alt="image" src="https://github.com/user-attachments/assets/8fd137e3-010c-4e8f-a4c0-8164bb268c7e" />
+
+
 
 
 
@@ -17,10 +19,6 @@
 
 <p align="center">
   ────୨ৎ────
-</p>
-
-<p align="center">
-  ic: @kuqii_ on twt⠀⠀@bensiebetsy on tt
 </p>
 
 <p align="center">
