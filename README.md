@@ -1,8 +1,9 @@
-<img width="2397" height="1530" alt="image" src="https://github.com/user-attachments/assets/e3e273d6-e24b-4cd8-afa4-e493036a2997" />
+<img width="735" height="675" alt="image" src="https://github.com/user-attachments/assets/d483217d-da0a-4ce8-a60b-d4420a16b6a7" />
 
 
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![](https://komarev.com/ghpvc/?username=cemetery-girl&color=FCB20C&style=plastic&label=bunnies+𐔌՞..՞𐦯)
+
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![](https://komarev.com/ghpvc/?username=cemetery-girl&color=696969&style=plastic&label=bunnies+𐔌՞..՞𐦯)
 
 
 
